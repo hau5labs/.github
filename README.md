@@ -1,1 +1,1 @@
-https://hau5.dev
+https://hau5labs.com
