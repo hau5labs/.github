@@ -1,0 +1,3 @@
+hau5 Labs is a maker brand building hardware, software, and games. The philosophy is Renaissance — curiosity across disciplines is the point, not a distraction. The workshop is the brand. Everything ships under one roof: cyberdecks, dev tools, indie games, music hardware. No niche, no apologies.
+
+https://hau5labs.com
